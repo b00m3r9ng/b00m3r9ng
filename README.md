@@ -1,4 +1,4 @@
-#I have mad coding skillz
+I have mad coding skillz
 
 Ockon lead dev
 
